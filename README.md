@@ -1,0 +1,1 @@
+# amoyboy.github.io
